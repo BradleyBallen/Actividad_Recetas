@@ -76,3 +76,52 @@ Desgrana los elotes y licúalos con la mantequilla, azúcar, polvo de hornear y 
 Rellena las hojas de maíz con la mezcla.
 
 Cocina al vapor durante 1 hora.
+Guacamole Tradicional
+
+Ingredientes:
+
+3 aguacates maduros
+
+1 jitomate
+
+1/4 de cebolla
+
+1 chile serrano
+
+Cilantro fresco
+
+Jugo de 1 limón
+
+Sal al gusto
+
+Preparación:
+
+Machaca el aguacate en un tazón.
+
+Pica jitomate, cebolla, chile y cilantro, luego mézclalos.
+
+Agrega limón y sal al gusto.
+
+🍲 5. Pozole Rojo
+
+Ingredientes:
+
+500 g de maíz pozolero precocido
+
+500 g de carne de cerdo (espinazo, pierna)
+
+3 chiles guajillo
+
+1 cabeza de ajo
+
+Lechuga, rábano, cebolla, orégano y tostadas para acompañar
+
+Preparación:
+
+Cuece el maíz y la carne en agua con ajo hasta que reviente el maíz.
+
+Hidrata los chiles y licúalos con ajo para hacer la salsa roja.
+
+Incorpora la salsa al caldo y hierve unos minutos más.
+
+Sirve con lechuga, rábano, cebolla, orégano y tostadas.
