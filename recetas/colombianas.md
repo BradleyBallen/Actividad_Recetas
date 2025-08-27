@@ -1,0 +1,3 @@
+La base de las arepas se prepara con harina precocida de maíz y agua a la que suele añadirse queso campesino rallado. Una vez elaborada la masa, solo hay que dorarlas en la sartén (con o sin aceite) y estarán listas en pocos minutos.
+
+Esta es una receta muy sencilla y fácil de preparar. Según la región, las arepas varían en su preparación: algunas personas las prefieren más gruesas, otras más delgadas, y algunas las cocinan con más aceite. Con esta receta simple y usando poco aceite, puedes disfrutar de unas deliciosas arepas colombianas. Toma nota de los ingredientes y la elaboración para preparar las mejores arepas colombianas.
