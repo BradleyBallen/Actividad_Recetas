@@ -122,6 +122,6 @@ Cuece el maíz y la carne en agua con ajo hasta que reviente el maíz.
 
 Hidrata los chiles y licúalos con ajo para hacer la salsa roja.
 
-Incorpora la salsa al caldo y hierve unos minutos más.
+
 
 Sirve con lechuga, rábano, cebolla, orégano y tostadas.
