@@ -64,3 +64,5 @@ git push origin v1.0.0
 # Ver historial de commits
 git log --oneline --graph --decorate --all
  
+Para finalizar adjunto la URL del video que fue subido a youtube
+https://youtu.be/VrOSqgq1_WU
